@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Orjiakoz
+- 👀 I’m interested in 
+- 🌱 I’m currently learning Civil & marine engineering.
